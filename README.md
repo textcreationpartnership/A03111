@@ -35,8 +35,35 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Certaine rules, directions, or advertisements for this time of pestilentiall contagion With a caveat
+
+1. TO
+THE HIGH AND
+POTENT KING,
+CHARLES King of Great
+Britaine, France, and Ireland,
+health and happineſſe.
+
 #####Body#####
+
+1. CERTAINE RVLES,
+DIRECTIONS, OR ADVERTISEMENTS
+FOR THIS
+TIME OF PESTILENTIALL
+CONTAGION.
+
+    _ That Amulets confected of Arſenicke,
+are no good Preſervatives againſt
+the Plague.
+
+1. Certaine Directions for the uſe of
+the poorer ſort of people that ſhall be viſited by
+the Pestilence, how to carrie themſelves.
+
+    _ For their drinke.
+
+    _ The ſecond ſweating Medicine.
+
+    _ The third ſweating Medicine.
 
 **Types of content**
 
